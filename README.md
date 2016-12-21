@@ -35,3 +35,6 @@ Jingtong Feng, Joonyoung Park, Victoria Bertotti, Zhuqian Zhou
 [link](https://drive.google.com/open?id=0B4B036Fmhu-GN3pTLVJkaWxOb0U)
 
 ### [Survey for Group 4](https://tccolumbia.qualtrics.com/SE/?SID=SV_bBACp5QhCL3hnP7)
+Sam Pepe, Ben Roberts, Jie Gao, Wei Wei 
+[link] https://youtu.be/6m9CkGFQDzk
+sorry it's late we thought we uploaded it Monday night :O 
